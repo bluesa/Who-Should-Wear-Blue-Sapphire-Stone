@@ -1,0 +1,2 @@
+# Who-Should-Wear-Blue-Sapphire-Stone
+Blue Sapphire stone should be worn by ascendant of Capricorn and native who are born under month September.Since blue sapphire is birthstone of September so wearing this gemstone bring happiness, prosperity, health, wealth to a person.Apart from this a person who is suffering from weak or malefic shani can wear blue sapphire stone to get rid off malefic effects of Saturn.A person can also wear blue sapphire during major period of Saturn.
